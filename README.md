@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Adamsito17
-- 👀 I’m interested in basketball, gym and programming
+- 👀 I’m interested in basketball and programming
 - 📫 How to reach me: adam.maltoni@gmail.com
 
 <!---
